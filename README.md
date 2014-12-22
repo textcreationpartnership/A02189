@@ -35,32 +35,38 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The iaylers iayl-deliuery. Preached at Great Saint Maries in Cambridge, the 6. of February. 1619. By
+
+1. TO THE RIGHT WORTHY AND WORSHIPFVLL Mrs IANE BVRGOYNE, Wife to the Right Worſhipfull M. IOHN BVRGOYNE of Sutton in Bedford, and Daughter to the Right Worſhipfull Mr. WILLIAM KEMPE, of Spainſhall in Fiching-field Eſſex, Eſquire, all encreaſe of grace from the Father of light and of life be moſt heartily commended.(*⁎*)
+
 #####Body#####
 
-1. What muſt I doe? Text.
+1. THE IAYLERS IAYL-DELIVERY.
 
-1. To bee ſaued. Text.
+    _ What muſt I doe? Text.
 
-1. To bee ſaued. Text.
+    _ To bee ſaued. Text.
 
-1. And they ſaid, Beleeue in the Lord Ieſus Text. Chriſt, thou ſhalt be ſaued and thy houſe.
+    _ To bee ſaued. Text.
 
-1. And thy houſe. Text.
+    _ And they ſaid, Beleeue in the Lord Ieſus Text. Chriſt, thou ſhalt be ſaued and thy houſe.
 
-1. Beleeue on the Lord Ieſus Chriſt, and thou Text. ſhalt be ſaued.
+    _ And thy houſe. Text.
 
-1. Beleeue. Text.
+    _ Beleeue on the Lord Ieſus Chriſt, and thou Text. ſhalt be ſaued.
 
-1. On the Lord Ieſus Chriſt. Text.
+    _ Beleeue. Text.
 
-1. Lord Ieſus Chriſt. Text.
+    _ On the Lord Ieſus Chriſt. Text.
 
-1. Ieſus. Text.
+    _ Lord Ieſus Chriſt. Text.
 
-1. Chriſt. Text.
+    _ Ieſus. Text.
 
-1. And thou ſhalt be ſaued. Text.
+    _ Chriſt. Text.
+
+    _ And thou ſhalt be ſaued. Text.
+
+1. A GODLY AND Zealous Prayer.
 
 **Types of content**
 
